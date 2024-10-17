@@ -29,4 +29,4 @@ I am a passionate **BSc Computer Science** graduate with a deep interest in **so
 
 ### 📫 How to Reach Me
 - shannonventer26@gmail.com
-- [LinkedIn](www.linkedin.com/in/shannon-venter-508113279)
+- LinkedIn: www.linkedin.com/in/shannon-venter-508113279
